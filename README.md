@@ -13,5 +13,3 @@
 ![https://i.imgur.com/vJGusts.png](https://i.imgur.com/vJGusts.png)
 
 ![https://i.imgur.com/mPdlcpt.png](https://i.imgur.com/mPdlcpt.png)
-
-![https://i.imgur.com/mPdlcpt.png](https://i.imgur.com/mPdlcpt.png)
