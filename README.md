@@ -1,6 +1,6 @@
 # jak-naprawic-XAMPP
 
-[https://imgur.com/a/rr47H0g](https://i.imgur.com/T2LFswI.png)
+![https://imgur.com/a/rr47H0g](https://i.imgur.com/T2LFswI.png)
 
 [https://imgur.com/a/qTDnt6b](https://i.imgur.com/aqnHfbs.png)
 
